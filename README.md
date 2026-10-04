@@ -29,3 +29,23 @@ https://scholar.google.com/citations?user=Erjo4pMAAAAJ&hl=de
 https://www.ifi.uzh.ch/en/department/people/former-faculty/ailab/group/professors/rolfpfeifer.html
 
 https://mitpress.mit.edu/author/rolf-pfeifer-8747/
+
+**Hod Lipson**:
+
+https://www.me.columbia.edu/faculty/hod-lipson
+
+https://en.wikipedia.org/wiki/Hod_Lipson
+
+https://scholar.google.com/citations?user=F_Go4V4AAAAJ&hl=zh-CN
+
+https://www.engineering.columbia.edu/faculty-staff/directory/hod-lipson
+
+**Nick Cheney**
+
+https://www.uvm.edu/cems/cs/profile/nick-cheney
+
+https://scholar.google.com/citations?user=gwpqf8sAAAAJ&hl=en
+
+https://www.linkedin.com/in/ncheney
+
+https://www.ncheney.com/
