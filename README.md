@@ -49,3 +49,33 @@ https://scholar.google.com/citations?user=gwpqf8sAAAAJ&hl=en
 https://www.linkedin.com/in/ncheney
 
 https://www.ncheney.com/
+
+**Fumiya lida**
+
+https://scholar.google.com/citations?user=gn3rZ7sAAAAJ&hl=en
+
+https://uk.linkedin.com/in/fumiyaiida
+
+https://www.eng.cam.ac.uk/profiles/fi224
+
+https://www.researchgate.net/profile/Fumiya-Iida
+
+**Josie Hughes**
+
+https://people.epfl.ch/josie.hughes?lang=en
+
+https://scholar.google.com/citations?user=CXfveikAAAAJ&hl=en
+
+https://ch.linkedin.com/in/josie-hughes-b653993b
+
+https://mitpress.mit.edu/author/josie-hughes-41974/
+
+**Perla Maiolino**
+
+https://eng.ox.ac.uk/people/perla-maiolino
+
+https://scholar.google.com/citations?user=PbtP5MoAAAAJ&hl=it
+
+https://uk.linkedin.com/in/perla-maiolino-0837453a
+
+https://ori.ox.ac.uk/people/perla-maiolino
